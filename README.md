@@ -1,4 +1,4 @@
-# Minnesota-nude-cleaners
+# Minnesota nude cleaners
 List of nude/naked cleaners in Minnesota
 
 [South Metro House Cleaning:](https://www.southmetrohousecleaning.com/)
